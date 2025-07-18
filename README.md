@@ -42,4 +42,4 @@ We may update this Privacy Policy from time to time. Changes will be posted in t
 
 8. Contact Us
 If you have any questions about this Privacy Policy, feel free to contact us at:
-📧 lubbadibrahim0@gmil.com
+📧 lubbadibrahim0@gmail.com
